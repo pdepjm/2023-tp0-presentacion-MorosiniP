@@ -13,6 +13,12 @@ porque *mejor pajaro en mano que cien volando*, dicen por ahi (?
  Bueno en principio eso es todo! 
  Y a no olvidarse que segundo Francia ⭐⭐⭐
  
+ ##### Prueba con commit desde git bash
+ Me gusta cualquier tipo de 🎞pelicula menos las romanticas
+ Con la musica 0 drama te escucho desde rock nacional a un cachengue sin escalas
+ 
+
+
  
  <img alt="fotoMia" src="https://user-images.githubusercontent.com/85042388/228986115-18bacd1e-78f8-4f2d-aea5-721b5d8cfae1.jpg" width="500" height="500"></a></div>
 
