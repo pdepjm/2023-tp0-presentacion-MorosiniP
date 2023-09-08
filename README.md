@@ -7,7 +7,7 @@ Estoy entre 2do y 3er año de la carrera me queda sintaxis y pdp para cerrar el 
 porque *mejor pajaro en mano que cien volando*, dicen por ahi (?
 
 + ⚽ Amante del buen futbol , juego los domingos torneito de F8
-+ 💑 Felizmente de novio
+
 + 📕 Con ganas de meterle a la materia y a la carrera en gral para en un futuro tener un ING adelante del nombre
  
  Bueno en principio eso es todo! 
